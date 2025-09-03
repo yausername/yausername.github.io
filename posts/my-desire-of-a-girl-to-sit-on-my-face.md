@@ -1,0 +1,12 @@
+04-09-2025 2:00 AM
+
+I have this weird desire that a girl, who I like, would lovingly and willing sit on my face. I care about this so deeply. I wonder why?
+It is not the act of it that makes me want it. It is the circumstances that make the act possible which I so deeply want.
+I could trick a girl into liking me and then maybe even make the circumstances possible in some way, but that would be fraud.
+
+What I really desire is that the circumstances naturally exist. But I cannot imagine how or why would such circumstances exist.
+And they will never exist until I myself believe that they can exist. How am I even going to propose a girl for the said act if I myself don't believe in it.
+
+I guess it is that belief I desire more than anything else.
+
+Let's see.
